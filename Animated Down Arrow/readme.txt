@@ -1,0 +1,1 @@
+coœ bia³ego, które siê rusza na bia³ym tle
